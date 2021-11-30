@@ -20,9 +20,10 @@ RU EDITION
 вам нужно обновить или загрузить java -> https://www.java.com/ru/download/
 вам нужен загрузчик doanload -> https://disk.yandex.ru/d/PhxbOcDCf6TtXw
 затем вам нужно открыть взломанный загрузчик,
-затем вам нужен разблокированный
+затем вам нужен разблокированный 
 загрузчик, в конце концов, вам нужно это ![Снимок экрана (1065)](https://user-images.githubusercontent.com/94770925/144038899-1c128f44-468f-4c53-ae6d-7b938976f94f.png)
-katrien_5.97 aktien премиум взломан |версия 5.97|
+atrien_5.97
+aktien премиум взломан |версия 5.97|
 
 https://disk.yandex.ru/d/PhxbOcDCf6TtXw
 https://disk.yandex.ru/d/PhxbOcDCf6TtXw
